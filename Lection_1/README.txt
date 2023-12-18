@@ -1,3 +1,5 @@
+https://gbcdn.mrgcdn.ru/uploads/asset/4239327/attachment/67ca2d700eae346cc89b98a0d92b1329.html
+
 Горячие клавиши
 Edit Mode (press Enter to enable)
 Ctrl-A : select all.
